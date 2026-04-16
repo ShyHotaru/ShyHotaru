@@ -1,7 +1,7 @@
 Hotaru Yasuda | 安田 星垂  
 Gyubin Park | 박규빈
 
-CEO of **ShyStella**  
+Founder of **ShyStella**  
 President of the MIS.W Programming Research Group
 
 > A shy imagination becomes a star that shines.  
