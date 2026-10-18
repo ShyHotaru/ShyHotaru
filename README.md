@@ -1,8 +1,8 @@
 Hotaru Yasuda | 安田 星垂  
-Gyubin Park | 박규빈
+a.k.a. Gyubin Park | 박규빈
 
 Founder of **ShyStella**  
-President of the MIS.W Programming Research Group
+President of the MIS.W Programming Research Group (2025-2026)
 
 > A shy imagination becomes a star that shines.  
 >
